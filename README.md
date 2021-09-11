@@ -1,2 +1,2 @@
 # amarie17.github.io
-Map of y favorite destinations
+Map of my favorite destinations
